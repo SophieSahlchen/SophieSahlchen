@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SophieSahlchen
-- 👀 I’m interested in Neele
+- 👀 I’m interested in @NeeleSahlchen
 - 🌱 I’m currently learning for my exams
 - 💞️ I’m looking to collaborate on that totally cool game we create in SE
 - 📫 How to reach me COME TO MY HOUSE
